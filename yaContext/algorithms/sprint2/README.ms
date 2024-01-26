@@ -1,0 +1,1 @@
+Ссылка на задачи https://contest.yandex.ru/contest/22779/problems/G/
